@@ -1,3 +1,3 @@
 # Patela
 
-Update #1
+Update no. 1
